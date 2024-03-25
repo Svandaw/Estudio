@@ -1,3 +1,3 @@
 "# Estudio" 
 es de loco
-Svane 
+Svane Zasckine
