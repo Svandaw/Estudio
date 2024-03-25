@@ -1,2 +1,2 @@
 "# Estudio" 
-sandunga la borincana
+asd
